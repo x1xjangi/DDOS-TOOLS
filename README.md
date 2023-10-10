@@ -1,3 +1,3 @@
 # DDOS-TOOLS
 KAIC2! - BEST DDOS ON THE MARKET WITH TAKING WEBSITES HOMES AND VPNS
-https://dsc.gg/subzer0
+https:/discord.gg/subz
